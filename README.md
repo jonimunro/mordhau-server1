@@ -3,4 +3,4 @@
 1. No FFA or revenge FFA
 2. Listen to admins
 3. Be respectful of everyone 
-join our discord at: discord.gg/dEsXJFvS
+**join our discord at: discord.gg/dEsXJFvS**
