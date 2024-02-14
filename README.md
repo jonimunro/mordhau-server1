@@ -4,4 +4,4 @@
 2. Listen to admins
 3. Be respectful of everyone 
 in our discord at: 
-<a id="Join our discord - discord.gg/dEsXJFvS">https://discord.gg/dEsXJFvS</>
+<a id="Join our discord - discord.gg/dEsXJFvS">https://discord.gg/dEsXJFvS
